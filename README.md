@@ -2,7 +2,7 @@
 - 👀 I’m interested in all sorts of things
 - 🌱 I’m currently learning lifedesign by positive psychology
 - 💞️ I’m looking to eventually collaborate
-- 📫 you can reach me 24/7
+- 📫 you can reach me 24/7, almost...
 - 😄 Pronouns: he-man
 - ⚡ Fun fact: I always eat hamburgers upside down
 
